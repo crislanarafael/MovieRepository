@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Summer Movie Review: Atomic Blonde"
-date:   
+date:   2017-08-09 13:57
 categories:
 ---
 **Director: David Leitch**  
