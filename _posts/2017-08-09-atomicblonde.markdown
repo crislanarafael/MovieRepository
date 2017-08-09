@@ -24,9 +24,9 @@ That Tldr is the shortest summary I could make about the entire movie. Seriously
 
 Action-wise the movie was amazing. The fight scenes were well choreographed and I was surprised to learn that Charlize actually performed most of the stunts. I really liked the use of judo throws in the movie. The guys Charlize's character goes up against are bigger and stronger and I liked that the stunts reflected how someone with a smaller frame would get tossed around a little and would have to use techniques that didn't rely on brute force to get results. This is David Leitch's area of expertise and he didn't disappoint. The 80s aesthetic of the movie was a nice touch, seeing as it's set in 1989. I'm a sucker for the outrun aesthetic that's coming back in style. I love the soundtrack for the movie: David Bowie's Cat People (Putting Out Fire) was really fitting to start the movie, George Michael's 'Father Figure', the German version of Peter Schilling's 'Major Tom', etc. The soundtack was almost eery iconic 80s pop/rock songs you can think of, which the studio probably paid an arm and a leg for licensing. Bonus points for getting Til Schweiger to star in a small role as the Watchmaker. (I have a soft spot for Inglourious Basterds)
 
-I thoroughly enjoyed watching Atomic Blonde, despite falling short plot-wise. It's not the greatest movie I've watched this year, but it's a damn good time. 
+I thoroughly enjoyed watching Atomic Blonde, despite falling short plot-wise. It's not the greatest movie I've watched this year, but it's a damn good time.
 
-**Recommendations:** Definitely watch it. Although it may not be as enjoyable if you try watching it multiple times. Don't expect the story to wrap up smoothly.
-**Rating:** 8.3/10
-**Badassery Level:** Hugo Stiglitz
+**Recommendations:** Definitely watch it. Although it may not be as enjoyable if you try watching it multiple times. Don't expect the story to wrap up smoothly.  
+**Rating:** 8.3/10  
+**Badassery Level:** Hugo Stiglitz  
 **Fun Fact:** Charlize Theron and Keanu Reeves got to spar due to the overlapping training schedules for Atomic Blonde and John Wick Chapter 2. Too bad Bane couldn't join in.
