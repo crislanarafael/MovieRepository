@@ -9,8 +9,8 @@ categories:
 
 There are two initial reasons why I wanted to see Atomic Blonde:
 
-1. Charlize Theron. Her and Tom Hardy kicked serious ass in Mad Max: Fury Road. It was the genuinely the only movie that mattered in 2015. I also really loved her role opposite Patton Oswalt in the film 'Young Adult' back in 2011 (It's one of my favorite movies that I want to review in a future post.) As far as I knew, and with the previous films I saw, she is a talented actress with a good range. I was already 75% sold.
-2. David Leitch. The guy made his directorial debut with the first John Wick movie. Yes. The guy directed John. Fucking. Wick. He is also a stuntman and stunt coordinator. WHAT?? Goddamn. This guy is a legit badass. Needless to say I was pretty stoked he directed Atomic Blonde. That 65% went right to 300%.
+1. **Charlize Theron.** Her and Tom Hardy kicked serious ass in Mad Max: Fury Road. It was the genuinely the only movie that mattered in 2015. I also really loved her role opposite Patton Oswalt in the film 'Young Adult' back in 2011 (It's one of my favorite movies that I want to review in a future post.) As far as I knew, and with the previous films I saw, she is a talented actress with a good range. I was already 75% sold.
+2. **David Leitch.** The guy made his directorial debut with the first John Wick movie. Yes. The guy directed John. Fucking. Wick. He is also a stuntman and stunt coordinator. WHAT?? Goddamn. This guy is a legit badass. Needless to say I was pretty stoked he directed Atomic Blonde. That 65% went right to 300%.
 
 It didn't last.
 
@@ -29,4 +29,4 @@ I thoroughly enjoyed watching Atomic Blonde, despite falling short plot-wise. It
 **Recommendations:** Definitely watch it. Although it may not be as enjoyable if you try watching it multiple times. Don't expect the story to wrap up smoothly.  
 **Rating:** 8.3/10  
 **Badassery Level:** Hugo Stiglitz  
-**Fun Fact:** Charlize Theron and Keanu Reeves got to spar due to the overlapping training schedules for Atomic Blonde and John Wick Chapter 2. Too bad Bane couldn't join in.
+**Fun Fact:** Charlize Theron and Keanu Reeves got to spar together due to the overlapping training schedules for Atomic Blonde and John Wick Chapter 2. Too bad Bane couldn't join in.
