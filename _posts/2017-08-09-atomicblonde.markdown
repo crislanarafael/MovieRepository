@@ -12,8 +12,10 @@ There are two initial reasons why I wanted to see Atomic Blonde:
 1. **Charlize Theron.** Her and Tom Hardy kicked serious ass in Mad Max: Fury Road. It was genuinely the only movie that mattered in 2015. I also really loved her role opposite Patton Oswalt in the film 'Young Adult' back in 2011 (It's one of my favorite movies that I want to review in a future post.) As far as I know with the previous films I saw, she is a talented actress with a good range. I was already 75% sold.
 2. **David Leitch.** The guy made his directorial debut with the first John Wick movie. Yes. The guy directed John. Fucking. Wick. He is also a stuntman and stunt coordinator. WHAT?? Goddamn. This guy is a legit badass. Needless to say I was pretty stoked he directed Atomic Blonde. That 65% went right to 300%.
 
+
 ![](https://media.giphy.com/media/nVnluWrUCFNTi/giphy.gif)  
 **It didn't last.**
+
 
 Now I'm not saying that Atomic Blonde is a bad movie. You can get through those 115 minutes and get some enjoyment out of it. It was only after the third time watching it that I couldn't help but notice areas where the movie came up short.
 
