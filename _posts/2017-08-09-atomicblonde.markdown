@@ -13,7 +13,7 @@ There are two initial reasons why I wanted to see Atomic Blonde:
 2. **David Leitch.** The guy made his directorial debut with the first John Wick movie. Yes. The guy directed John. Fucking. Wick. He is also a stuntman and stunt coordinator. WHAT?? Goddamn. This guy is a legit badass. Needless to say I was pretty stoked he directed Atomic Blonde. That 65% went right to 300%.
 
 It didn't last.  
-![](https://media.giphy.com/media/ZUc5N9svxKqm4/giphy.gif)
+![](https://media.giphy.com/media/nVnluWrUCFNTi/giphy.gif)
 
 Now I'm not saying that Atomic Blonde is a bad movie. You can get through those 115 minutes and get some enjoyment out of it. It was only after the third time watching it that I couldn't help but notice areas where the movie came up short.
 
