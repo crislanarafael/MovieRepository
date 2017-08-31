@@ -21,5 +21,5 @@ Despite the ending, I really enjoyed the hell out of this movie. Like with any o
 
 **Recommendations:** Solid summer movie. Must watch.
 **Rating:** 8.6/10
-![] (https://media.giphy.com/media/qq1cV75OocOvm/giphy.gif)
+![](https://media.giphy.com/media/qq1cV75OocOvm/giphy.gif)
 **Getaway Car of Choice:** Subaru WRX. Not just for rallying.
