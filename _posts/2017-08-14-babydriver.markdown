@@ -19,7 +19,7 @@ In-depth analysis aside, I'm very impressed with how the visuals are shot in thi
 
 Despite the ending, I really enjoyed the hell out of this movie. Like with any of Edgar Wright's previous work, you can take Baby Driver at face value or dive in deep and still get something out of it; I could tell there was a lot of love put into this project. A solid movie that's definitely in my top 10 of 2017 so far!
 
-**Recommendations:** Solid summer movie. Must watch.
+**Recommendations:** Solid summer movie. Must watch.  
 **Rating:** 8.6/10
-![](https://media.giphy.com/media/qq1cV75OocOvm/giphy.gif)
+![](https://media.giphy.com/media/qq1cV75OocOvm/giphy.gif)  
 **Getaway Car of Choice:** Subaru WRX. Not just for rallying.
