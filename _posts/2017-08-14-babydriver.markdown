@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Summer Movie Review: Baby Driver"
-date:   2017-08-14 20:49
+date:   2017-08-30 19:12
 categories:
 ---
 **Directed by: Edgar Wright**  
